@@ -1,0 +1,1 @@
+Hey all, I'm a data Analyst in the healthcare industry with previous experience working with financial, digital marketing and education data. Please reach out to wasiftalukder1@gmail.com if you're curious about anything on my portfolio.
